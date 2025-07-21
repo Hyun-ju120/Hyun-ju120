@@ -19,16 +19,5 @@
 </div>
 <details>
 
-<summary>Fav characters</summary>
-(Alphabet order)
+<summary>wip</summary>
 
-1. Beast boy
-2. Bdoubleo100
-3. Eijiro Kirishima
-4. Glamrock freddy 
-5. Jim jr lake
-6. Loki laufeyson  
-7. Monty
-8. TangoTek 
-9. Venture 
-10. Wwdits family
