@@ -8,7 +8,7 @@
 
 15 ‎ ‎non-binary ‎ ‎ <img src="https://gifs.crd.co/assets/images/gallery25/aabba3e9.gif?v=ef433a6f" width="15" height="12"/>ㅤnorsk
 
-<img src="https://gifcity.carrd.co/assets/images/gallery10/5146d312.gif?v=e3c0bc0f" width="15" height="12"/>ㅤ[strawpage](https://beast-boy.straw.page/)ㅤ[guns.lol](https://guns.lol/sloanrocks)ㅤ[Ata](https://midnightmischief.atabook.org)ㅤ<img src="https://gifcity.carrd.co/assets/images/gallery10/1911edc0.gif?v=e3c0bc0f" width="15" height="12"/> 
+[strawpage](https://beast-boy.straw.page/)ㅤ[guns.lol](https://guns.lol/sloanrocks)ㅤ[Ata](https://midnightmischief.atabook.org)ㅤ<
 </div>
 <div align="center">
 <img src="https://i.imgur.com/NGPqwMq.gif" width="500" height="60"/>
