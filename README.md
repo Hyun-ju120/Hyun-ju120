@@ -25,4 +25,4 @@
 
 <summary>Stamps</summary>
 <img src="https://64.media.tumblr.com/613e063b16bca02298b710d04deec7f3/8175a53879a613d6-ee/s100x200/55fcb1cc04ed0183a04e04ae1e071858365f862a.pnj" width="150" height="150"/> <img src="https://64.media.tumblr.com/fc277b72ef80be82227b683169e1c7d3/0889dc19112f2958-a5/s100x200/7449fbb95b15678f1114b6a4b09b7a61e2cdc026.pnj"<img src="width="150" <img src="https://64.media.tumblr.com/b7a34a31acee4d27bc8178448667a1c6/80b74aa3ddc27322-ce/s250x400/e7df05dca36c972f2fca6ed6327bccbaff04e473.gifv" width="150" height="150"/>
-<img src="https://64.media.tumblr.com/b7a34a31acee4d27bc8178448667a1c6/80b74aa3ddc27322-ce/s250x400/e7df05dca36c972f2fca6ed6327bccbaff04e473.gifv" width="150" height="150"/>
+<img src="https://chocolaterevel.neocities.org/Files/Images/Made%20by%20Me/Stamps/3/mazerunner.png" width="150" height="150"/>
