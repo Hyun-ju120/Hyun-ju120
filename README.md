@@ -20,7 +20,7 @@
 <details>
 
 <summary>wip</summary>
- <img src="https://64.media.tumblr.com/252eb868e25542cfadb621abffe947db/fb202a3b7f125906-cd/s500x750/d9de7d50bf62fe4e05ea74e00060ac935ee53b27.gifv" width="200" height="200"/>
+ <img src="https://64.media.tumblr.com/252eb868e25542cfadb621abffe947db/fb202a3b7f125906-cd/s500x750/d9de7d50bf62fe4e05ea74e00060ac935ee53b27.gifv" width="200" height="200"/>  <img src="https://64.media.tumblr.com/98231a6bbdde2a843bec1cb160397d3d/42c97a9666a2a496-18/s250x400/fa12724cd1712edf0f4a5bdb1f36a722c241e314.gifv" width="200" height="200"/>
 
 
 <summary>Stamps</summary>
