@@ -8,7 +8,7 @@
 
 15 ‎ ‎non-binary ‎ ‎ <img src="https://gifs.crd.co/assets/images/gallery25/aabba3e9.gif?v=ef433a6f" width="15" height="12"/>ㅤnorsk
 
-[strawpage](https://beast-boy.straw.page/)ㅤ rmk [guns.lol](https://guns.lol/sloanrocks)ㅤ[Ata](https://midnightmischief.atabook.org)
+[strawpage](https://beast-boy.straw.page/)rmk [guns.lol](https://guns.lol/sloanrocks)ㅤ[Ata](https://midnightmischief.atabook.org)
 </div>
 <div align="center">
 <img src="https://i.imgur.com/NGPqwMq.gif" width="500" height="60"/>
