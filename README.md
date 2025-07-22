@@ -11,7 +11,7 @@
 [strawpage](https://beast-boy.straw.page/)rmk [guns.lol](https://guns.lol/sloanrocks)ㅤ[Ata](https://midnightmischief.atabook.org)
 </div>
 <div align="center">
-<img src="https://i.imgur.com/NGPqwMq.gif" width="500" height="60"/>
+<img src="https://i.imgur.com/NGPqwMq.gif" width="350" height="50"/>
 
 ‎ 
 
