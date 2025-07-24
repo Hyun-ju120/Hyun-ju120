@@ -8,7 +8,7 @@
 
 15yo ‎ ‎<img src="https://64.media.tumblr.com/7b00537f2da0076c92494e73dcb6d907/0a11a47c43145bbe-39/s75x75_c1/d19ebda80c9efcb2c52f3d3341b68c77afe4f433.gifv" width="15" height="12"/>‎ ‎‎ ‎‎Norwegian
 
-[strawpage](https://beast-boy.straw.page/)rmk [guns.lol](https://guns.lol/sloanrocks)ㅤ[Ata](https://midnightmischief.atabook.org)
+[strawpage]()rmk [guns.lol](https://guns.lol/sloanrocks)ㅤ[Ata](https://midnightmischief.atabook.org)
 </div>
 <div align="center">
 <img src="https://64.media.tumblr.com/c9c0d8d98a068ac05337b3a92e441fd6/a2b9a9b92798b874-a7/s640x960/60e0c229fd5466526c2d33486a318af2e165e819.gifv" width="350" height="50"/>
