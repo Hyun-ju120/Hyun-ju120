@@ -6,7 +6,7 @@
 
 ‎<img src="https://media1.tenor.com/m/hceHsDRJemkAAAAC/cho-hyun-ju-hyun-ju.gif" width="300" height="300"/>
 
-15yo ‎ ‎<img src="https://64.media.tumblr.com/7b00537f2da0076c92494e73dcb6d907/0a11a47c43145bbe-39/s75x75_c1/d19ebda80c9efcb2c52f3d3341b68c77afe4f433.gifv" width="15" height="12"/>‎ ‎‎ ‎‎Norwegian
+16yo ‎ ‎<img src="https://64.media.tumblr.com/7b00537f2da0076c92494e73dcb6d907/0a11a47c43145bbe-39/s75x75_c1/d19ebda80c9efcb2c52f3d3341b68c77afe4f433.gifv" width="15" height="12"/>‎ ‎‎ ‎‎Norwegian
 
 [strawpage]()rmk [guns.lol](https://guns.lol/sloanrocks)ㅤ[Ata](https://midnightmischief.atabook.org)
 </div>
